@@ -7,4 +7,5 @@
 </div>
   
 ##
-![Curriculum vitae (1)_page-0001](https://user-images.githubusercontent.com/108038302/179775919-d0edaec7-f05a-47c3-92af-2edeef15a469.jpg)
+
+![Curriculum vitae docx_page-0001](https://user-images.githubusercontent.com/108038302/180058037-ca45f98c-1030-403b-8a5d-00ed7e9b3cb6.jpg)
